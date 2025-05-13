@@ -38,7 +38,7 @@ I'm a tech enthusiast who loves to build practical solutions using the power of 
 
 ## 📫 Let's Connect
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/shivapranavasai)
+- 🌐 [LinkedIn](https://www.linkedin.com/in/shiva-pranava-sai-g-76145a279/)
 - 📧 Email: gspsai.2004@gmail.com 
 
 ---
